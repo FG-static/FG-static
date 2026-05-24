@@ -1,5 +1,2 @@
-👀 - 不值一提的蚂蚁
-
-👨 - 时常魔怔
-
-📚 - 学习java中
+### Burn the Goose
+>bilibili: https://space.bilibili.com/437741386
